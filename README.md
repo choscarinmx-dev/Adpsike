@@ -1,0 +1,2 @@
+# Adpsike
+Página optimizada
